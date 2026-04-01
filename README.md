@@ -1,0 +1,1 @@
+# sistema-escolar-701-educacion-tecnico-palermo-NMS
